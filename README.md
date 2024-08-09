@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Kndomnvs
+- 👀 I’m interested in --> ML
+- 🌱 I’m currently learning --> Python, C
+- 💞️ I’m looking to collaborate on --> Nothing (currently)
+- 📫 How to reach me --> akarshan.misra@proton.me 
+- 😄 Pronouns: --> He / Him 
+- ⚡ Fun fact: --> Not Available
